@@ -6,4 +6,4 @@ don't bother searching for me elsewhere, i am not public nor do i care to be and
 
 aspiring league of legends and VALORANT legend. 
 
-owner and maintainer of the Game MegaEncyclopedia.
+owner and maintainer of the VALORANT MegaEncyclopedia.
